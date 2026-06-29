@@ -1,4 +1,4 @@
-# 
+# VIP Filmora predefinições para Mac OS | Personalizado Filmora predefinições para PC Windows. Com pré-composição e rastreamento — otimizado para máximo desempenho em cada plataforma.
 
 
 
